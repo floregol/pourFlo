@@ -11,3 +11,4 @@ Je te suis éternellement reconnaissante pour ce cours de git.
 Bonne fin de journée. You rock la machine learning
 
 >>>>>>> 88d0f11068a81eee808f5570b93e4c5e1249f286
+FLO R: REALLO JE MONTRE À JEANNE MES PROGRÈS
